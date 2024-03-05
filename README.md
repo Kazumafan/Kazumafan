@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kazumafan
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: I generate AI art.
